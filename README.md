@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a motivated engineering student.l like to<br>code, DIY, cook and travel.
+I am a motivated engineering student. l like to<br>code, DIY, cook and travel.
 
 
 ## 🌐 Socials:
